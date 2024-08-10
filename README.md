@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me is a no
-- 😄 Pronouns: I don't know
+- 😄 Pronouns: Him/He
 - ⚡ Fun fact: I have something that everyone has, a heart
 
 <!---
